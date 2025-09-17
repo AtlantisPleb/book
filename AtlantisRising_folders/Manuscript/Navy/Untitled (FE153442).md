@@ -1,0 +1,3 @@
+### Untitled (FE153442)
+
+Palatino-Roman; "List your current addictions." Victor blinked at the pointed question from the silken voice of the AI coming from his phone. He knew to expect the question, but it still gave him pause. "None." "List your previous addictions." "Caffeine, nicotine, alcohol, screens, sugar." "Describe your weaning process and ongoing preventive measures to prevent relapse." "Cold turkey nine months ago. Daily regimen is Elite Atlantean level three, "% integrity." "Confirm kettlebell." "24-kilogram standard, ready." "Snatch regimen. Five minute timer begins in three, two, one."
